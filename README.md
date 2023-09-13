@@ -102,4 +102,4 @@
 
 ## Authors
 
-- iAmG-r00t 👾
+- Winny Didine Ineza 👾
